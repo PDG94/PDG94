@@ -1,5 +1,10 @@
 ### Hi there 👋
 
+If you are interested in getting in contact with me you can find me on my 
+e-mail: ranekpdg@gmail.com
+phone number: +542964480374
+calendly: https://calendly.com/pdgonzalez94
+
 <!--
 **PDG94/PDG94** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
