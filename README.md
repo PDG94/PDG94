@@ -5,6 +5,8 @@ If you are interested in getting in contact with me you can find me on my:
 - phone number: +542964480374
 - calendly: https://calendly.com/pdgonzalez94
 
+*CV: https://drive.google.com/file/d/1S2WTVpvKxptP-2bzYMgBys7zDtOW8rh-/view?usp=share_link
+
 <!--
 **PDG94/PDG94** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
